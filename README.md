@@ -1,0 +1,1 @@
+# bog-chada-ovqat-berish-tizimi-pythonda
